@@ -6,3 +6,4 @@ repositori ini digunakan sebagai sayembara pencarian volunter untuk pembuatan ap
 Berikut daftar Volunter yang diterima:
 
 * fahmi ihwan, [oo.or.id](https://oo.or.id).
+* akun alter fahmi, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
